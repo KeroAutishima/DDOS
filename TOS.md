@@ -20,4 +20,7 @@ Contacting us
 
 If you would like to contact us to understand more about this Agreement or wish to contact us concerning any matter relating to it, you may send an email to KeroAutishima@gmail.com.
 
+Call me : +44 7587 486814
+
 This document was last updated on April 1, 2021
+This document was created on November 5, 2018
